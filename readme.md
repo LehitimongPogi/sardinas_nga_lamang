@@ -7,3 +7,6 @@
 Sardinas nga lamang
 
 It's wednesday my dudes!!
+
+Ayoko na pumasok 
+
